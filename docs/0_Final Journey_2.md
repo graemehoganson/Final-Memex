@@ -1,0 +1,12 @@
+I wanted to get a deeper understanding of how the internet formed and how that affected the people of that time.  Coming from a communications background that relation is what makes up the majority of the studies and so instead of interpreting media and its realtion I wanted to interpret the internet and its relation. 
+
+## The Journey Between website/atomic notes/animal spirits and website/source notes/Memex 3/Memex 3 - Source note 4
+- website/atomic notes/![[animal spirits#^af19d2]]
+- Animal Spirits - following my goals for what I wanted to achieve in this course. Learning about different theories for electricity helps to reflect how the public viewed the different topics.
+- #LuigiGalvani - All notes to do with Italian physician Luigi Galvani. 
+- website/In class notes/![[In Class Notes - Feb 13#^a12f03]]
+- In class notes -Feb 13
+- #internet - All notes to do with the internet and its history. 
+- website/source notes/Memex 3/![[Memex 3 - Source note 4#^16827c]]
+- Memex 3 - Source note 4
+- In class notes Feb 13 and Source note 4 from Memex 3 are already notes which I have touched on in [[0_Final Journey_1]]. These notes come up again as it reflects a similar message as the question what is the most powerful thing I have learned in this course. The reason that I find them a part of the most powerful things I have learned is because they help to contribute to my initial goals in taking the course. I wanted to see how the internet and networks as a whole contributed to the social spheres that they were apart of. In the in class note from February 13th we learned about that exactly that relation in reference to the telegraph. I was able to learn about why the telegraph was not initially wanted by the people of its time as well as learning about how innovation only normally comes when there is a social need for it. In source note 4 for memex 3 we are able to see how the Gopher system for the internet was influencial to its social sphere in enabling those outside of academia to have access to the internet and on a grander scale how people were able to see the development of what would become a world shaking invention. To conclude, as a whole I would say that as a whole I was able to accomplish what I wanted from the course, while I wish more of the material covered was about that direct relation ship from internet to the people using it. The notes above provide enough information for me to feel as If what I wanted from the course was completed. 
